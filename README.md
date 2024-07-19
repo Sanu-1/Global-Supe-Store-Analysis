@@ -1,5 +1,6 @@
 some key highlights and insights from our latest Sales Performance Report, which I recently presented at our shareholder’s meeting.
 Here are some of the standout points:
+https://www.linkedin.com/posts/sanu-saji-5234451a0_salesperformance-marketanalysis-businessgrowth-activity-7219958759962374145-SsHv?utm_source=share&utm_medium=member_desktop
 
 - Total Sales : $12.64 Million
 - Total Product Quantity Produced : 178,000 units
